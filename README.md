@@ -2,4 +2,5 @@
 
 Hello.
 
-This is quite weird. Dick stuck in oven and I'm doing this.
+This is quite weird. Edited to contain less things to mock me with. 
+Thank you, for that. 
